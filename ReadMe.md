@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ cursando análise desenvolvimento de sistemas<br>⚡ estudando back-end<br>⚡ Procuro estagio<br><br>
+⚡ Cursando análise desenvolvimento de sistemas<br>⚡ Estudando back-end<br>⚡ Procuro estagio<br><br>
 
 
 ## 🌐 Socials:
